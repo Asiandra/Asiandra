@@ -1,1 +1,1 @@
-Oh
+https://rentry.co/kamisato_ajax
